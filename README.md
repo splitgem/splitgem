@@ -1,5 +1,6 @@
-## Hi there 👋
-
+##### <p align="center">[rentry soon](https://dfgsdfgsjdgfjsdjfgsajkfdasjfjas.gfh)ㅤㅤㅤ&ㅤㅤㅤ[atabook](https://glassanimal.atabook.org/)</p>
+##### <p align="center">![](https://file.garden/ZfnkVweKR2HIs-sT/dfgsdfg..png)</p>
+##### <p align="center">![](https://komarev.com/ghpvc/?username=wato1876&color=944755&label=⠀⠀⠀prisoners⠀⠀　)</p>
 <!--
 **splitgem/splitgem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
